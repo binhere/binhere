@@ -12,7 +12,7 @@
 # Contact
 **Zalo:** 0908665756
 
-**Facebook:** https://www.facebook.com/pham.khoa.56884761/
+**Facebook:** https://shortest.link/3aK7
 
 **Student email:** 21520296@gm.uit.edu.vn
 
