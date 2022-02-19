@@ -1,4 +1,4 @@
-### Informat
+# Information
 
 💁‍♂️ Full name: Phạm Quốc Anh Khoa
 
@@ -9,7 +9,7 @@
 🏫 Studying at University of Information Technology(UIT)
 
 
-### Contact
+# Contact
 **Zalo:** 0908665756
 
 **Facebook:** https://www.facebook.com/pham.khoa.56884761/
