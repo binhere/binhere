@@ -14,5 +14,7 @@
 
 **Facebook:** https://shortest.link/3aK7
 
+**Personal email:** khoap736@gmail.com
+
 **Student email:** 21520296@gm.uit.edu.vn
 
